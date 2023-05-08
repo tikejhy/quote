@@ -16,3 +16,6 @@
 - Bright-Eyed and Bushy-Tailed.
 
 - With a butterfly kiss and a ladybug hug, sleep tight little one like a bug in a rug.
+
+- Nervous Nellie
+ - Phrase used to describe a worried or anxious person
