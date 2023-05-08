@@ -14,3 +14,5 @@
 - This is an end. And then something new will begin.
 
 - Bright-Eyed and Bushy-Tailed.
+
+- With a butterfly kiss and a ladybug hug, sleep tight little one like a bug in a rug.
