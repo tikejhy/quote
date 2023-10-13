@@ -34,6 +34,11 @@
 - Sometimes the smallest step in the right direction ends up being the biggest step of your life. Tip-toe if you must, but take the step.
 
 
+### Regret
+
+- Sorry doesn't mean anything, if you dont tell what its for.
+
+
 ### RoundAround
 
 - A farmer comes home one day
